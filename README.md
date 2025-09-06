@@ -1,1 +1,0 @@
-# seitansai2024
